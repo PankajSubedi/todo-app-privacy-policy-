@@ -2,7 +2,7 @@ Privacy Policy
 
 Introduction
 
-Our privacy policy will help you understand what information we collect at QR Scanner And Generator, how Tick: Next ToDo uses it, and what choices you have.
+Our privacy policy will help you understand what information we collect at Tick: Next ToDo, how Tick: Next ToDo uses it, and what choices you have.
 
 Pankaj Subedi built the Tick: Next ToDo app as a free app. This SERVICE is provided by Pankaj Subedi at no cost and is intended for use as is.
 
